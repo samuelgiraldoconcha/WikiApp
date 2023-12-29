@@ -1,3 +1,0 @@
-# Samuel
-
-I am Samuel
